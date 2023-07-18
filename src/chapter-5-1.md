@@ -1,4 +1,4 @@
-Pursuing Your Passions and Purpose - The Importance of Pursuing Your Passions and Purpose
+The Importance of Pursuing Your Passions and Purpose
 ====================================================================================================
 
 Pursuing your passions and purpose can provide a sense of direction, motivation, and fulfillment in life. It involves engaging in activities that bring joy, satisfaction, and meaning to one's life. In this chapter, we will explore the importance of pursuing your passions and purpose.

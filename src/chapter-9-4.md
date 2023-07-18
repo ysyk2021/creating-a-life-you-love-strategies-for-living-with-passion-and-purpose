@@ -1,4 +1,4 @@
-Building Support Systems - Building a Positive Social Network
+Building a Positive Social Network
 ========================================================================
 
 Building a positive social network is crucial for sustaining passion and purpose over the long-term. It involves cultivating supportive relationships with friends, family members, mentors, and colleagues who provide emotional, social, or practical assistance during difficult times. In this chapter, we will explore strategies for building a positive social network.

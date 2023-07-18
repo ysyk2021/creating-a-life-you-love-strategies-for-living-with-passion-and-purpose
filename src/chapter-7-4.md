@@ -1,4 +1,4 @@
-Balancing Passion and Purpose - Overcoming Burnout and Exhaustion
+Overcoming Burnout and Exhaustion
 ============================================================================
 
 While living with passion and purpose can provide a sense of fulfillment and motivation, it is important to balance these pursuits with self-care and rest. Burnout and exhaustion can occur when individuals neglect their physical, emotional, and mental needs. In this chapter, we will explore strategies for overcoming burnout and exhaustion.

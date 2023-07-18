@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [The importance of living a fulfilling life](chapter-1-1.md)
   - [Understanding the benefits of living with passion and purpose](chapter-1-2.md)
-  - [Overview of the book's contents](chapter-1-3.md)
 - [Chapter 1: Defining Passion and Purpose](chapter-2.md)
   - [What is passion?](chapter-2-1.md)
   - [What is purpose?](chapter-2-2.md)

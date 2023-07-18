@@ -1,4 +1,4 @@
-Sustaining Passion and Purpose - Strategies for Maintaining Motivation and Inspiration
+Strategies for Maintaining Motivation and Inspiration
 =================================================================================================
 
 Maintaining motivation and inspiration is essential for sustaining passion and purpose over the long-term. It involves cultivating a positive mindset, finding meaning in daily activities, seeking out new experiences, and connecting with supportive individuals. In this chapter, we will explore strategies for maintaining motivation and inspiration.

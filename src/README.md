@@ -10,5 +10,4 @@ By the end of this book, you will have a clear understanding of how to align you
 
 Whether you're just starting out on your journey or looking to make a change, "Creating a Life You Love" is a valuable resource for anyone looking to live with passion and purpose. Don't miss out on this inspiring read!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
