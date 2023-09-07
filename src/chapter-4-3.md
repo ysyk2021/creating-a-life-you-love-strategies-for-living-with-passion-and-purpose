@@ -1,5 +1,3 @@
-Identifying Your Purpose
-==========================================================================
 
 In order to create a life that you truly love, it is important to identify your purpose. Your purpose is the reason why you exist - it is the deeper meaning behind your actions and decisions. In this chapter, we will explore strategies for identifying your purpose.
 

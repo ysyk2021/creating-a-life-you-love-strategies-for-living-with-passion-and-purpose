@@ -1,5 +1,3 @@
-Chapter 6: Balancing Passion and Purpose
-========================================
 
 In order to live a fulfilling life with passion and purpose, it is important to find balance. Balancing your passions and purpose can help you avoid burnout and exhaustion, and enable you to sustain your efforts over the long term. In this chapter, we will explore strategies for balancing passion and purpose.
 

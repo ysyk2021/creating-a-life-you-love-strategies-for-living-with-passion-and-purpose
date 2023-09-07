@@ -1,8 +1,3 @@
-Chapter 8: Building Support Systems
-===================================
-
-Introduction
-------------
 
 Building a support system is essential for living a life filled with passion and purpose. In this chapter, we will explore the impact of supportive relationships on living with passion and purpose, strategies for building a support system, overcoming isolation and loneliness, and building a positive social network.
 

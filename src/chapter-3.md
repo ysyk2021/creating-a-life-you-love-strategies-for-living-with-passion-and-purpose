@@ -1,4 +1,3 @@
-# Chapter 2: Mindset for Living with Passion and Purpose
 
 ## Developing a Growth Mindset
 

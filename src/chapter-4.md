@@ -1,4 +1,3 @@
-# Chapter 3: Identifying Your Passions and Purpose
 
 In this chapter, we will explore the importance of understanding what drives you, identifying your passions, and uncovering your purpose. By finding alignment between your passions and purpose, you can create a life you love filled with meaning and fulfillment.
 

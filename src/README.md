@@ -1,4 +1,4 @@
-# Introduction
+
 
 Are you living the life you truly want? Are you following your passions and fulfilling your purpose? Many of us may feel stuck or unfulfilled, unsure of how to create a life that aligns with our goals and aspirations. "Creating a Life You Love: Strategies for Living with Passion and Purpose" offers practical strategies and insights for living a more fulfilling life.
 
@@ -11,3 +11,7 @@ By the end of this book, you will have a clear understanding of how to align you
 Whether you're just starting out on your journey or looking to make a change, "Creating a Life You Love" is a valuable resource for anyone looking to live with passion and purpose. Don't miss out on this inspiring read!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

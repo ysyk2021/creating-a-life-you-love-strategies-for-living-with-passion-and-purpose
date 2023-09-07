@@ -1,5 +1,3 @@
-Chapter 5: Finding Meaning and Fulfillment
-==========================================
 
 In order to create a life that you truly love, it is important to understand the role that meaning and fulfillment play in achieving true happiness. In this chapter, we will explore strategies for finding meaning in your passions and purpose, building a sense of fulfillment through service to others, and overcoming the fear of failure.
 
