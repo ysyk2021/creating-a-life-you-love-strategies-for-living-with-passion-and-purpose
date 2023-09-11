@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Balancing Multiple Passions
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for harmoniously balancing and pursuing multiple passions. While having diverse interests can be enriching, managing them simultaneously requires careful planning and prioritization.
 

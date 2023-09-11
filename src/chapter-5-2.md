@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Making Time for Your Passions
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies to help you carve out and prioritize time for your passions amidst the demands of daily life. Making time for your passions is a key step in creating a life you love.
 

@@ -1,5 +1,4 @@
-Chapter 3: Strategies for Building Self-Confidence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for nurturing and strengthening your self-confidence. Self-confidence is a cornerstone of creating a life you love, as it empowers you to pursue your passions and purpose with unwavering belief in your abilities.
 

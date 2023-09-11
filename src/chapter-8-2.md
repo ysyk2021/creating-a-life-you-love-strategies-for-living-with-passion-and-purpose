@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Overcoming Obstacles
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a set of powerful strategies to help you navigate and conquer the various obstacles that may arise on your journey to creating a life filled with passion and purpose. Obstacles are a natural part of any worthwhile pursuit, and knowing how to overcome them is essential for success.
 

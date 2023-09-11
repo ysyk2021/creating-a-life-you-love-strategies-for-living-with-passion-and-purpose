@@ -1,5 +1,4 @@
-Chapter 2: What Is Passion?
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of passion---what it is, why it matters, and how it plays a central role in creating a life you love.
 

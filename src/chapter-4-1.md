@@ -1,5 +1,4 @@
-Chapter 3: Understanding What Drives You
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will dive deep into the process of understanding what drives you---the core motivations and desires that fuel your actions and shape your journey toward creating a life you love. Recognizing these driving forces is essential for discovering your passions and defining your purpose.
 

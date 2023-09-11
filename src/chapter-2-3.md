@@ -1,5 +1,4 @@
-Chapter 6: The Role of Passion and Purpose in Personal Growth
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound influence of passion and purpose on personal growth and development. Understanding how these elements intertwine can guide you on the path to creating a life you love.
 

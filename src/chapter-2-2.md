@@ -1,5 +1,4 @@
-Chapter 3: What Is Purpose?
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of purpose---what it means, why it is essential, and how it forms the foundation for creating a life you love.
 

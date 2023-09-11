@@ -1,5 +1,4 @@
-Chapter 8: Building a Support System
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building a robust support system on your journey to creating a life filled with passion and purpose. A strong support system can provide encouragement, guidance, and the motivation needed to overcome obstacles and achieve your goals.
 

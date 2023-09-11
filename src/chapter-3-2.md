@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Limiting Beliefs About Passion and Purpose
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common limiting beliefs that can hinder your pursuit of a life filled with passion and purpose. By identifying and overcoming these beliefs, you can unlock your true potential and create a life you genuinely love.
 

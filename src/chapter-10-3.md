@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Burnout and Exhaustion
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming burnout and exhaustion on your journey to creating a life filled with passion and purpose. Burnout can be a significant obstacle, but with the right tools and mindset, you can navigate through it and continue on your path towards a fulfilling life.
 

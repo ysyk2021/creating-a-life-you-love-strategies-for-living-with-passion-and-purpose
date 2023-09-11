@@ -1,5 +1,4 @@
-Chapter 4: Building a Supportive Environment
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating a supportive environment for living a life filled with passion and purpose. Your surroundings, the people you interact with, and the spaces you inhabit play a significant role in shaping your journey towards a fulfilling life.
 

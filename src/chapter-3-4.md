@@ -1,5 +1,4 @@
-Chapter 4: The Power of Positive Thinking
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that positive thinking can have on your journey toward creating a life you love. Your thoughts and mindset play a pivotal role in shaping your experiences, and harnessing the power of positivity can be transformative.
 

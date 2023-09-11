@@ -1,5 +1,4 @@
-Chapter 5: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of a growth mindset and its pivotal role in creating a life filled with passion and purpose. Developing a growth mindset is a fundamental step toward personal growth, resilience, and the pursuit of a fulfilling life.
 

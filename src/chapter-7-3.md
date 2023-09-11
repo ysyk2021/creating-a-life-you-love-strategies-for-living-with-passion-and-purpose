@@ -1,5 +1,4 @@
-Chapter 5: Prioritizing Your Purpose
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial process of identifying and prioritizing your purpose. Your sense of purpose is a guiding force that can shape your decisions, actions, and overall life direction. By understanding how to prioritize your purpose, you can align your life with what truly matters to you.
 

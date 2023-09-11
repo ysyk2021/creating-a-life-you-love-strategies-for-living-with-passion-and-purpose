@@ -1,5 +1,4 @@
-Chapter 12: Understanding Common Obstacles to Living with Passion and Purpose
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common obstacles that individuals often encounter on their journey to living a life filled with passion and purpose. Recognizing these barriers is the first step towards overcoming them and achieving your goals.
 

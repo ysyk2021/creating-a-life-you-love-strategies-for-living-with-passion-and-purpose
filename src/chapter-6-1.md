@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Role of Meaning and Fulfillment in a Fulfilling Life
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound significance of meaning and fulfillment in the pursuit of a truly fulfilling life. Understanding how these elements contribute to your overall well-being is essential for crafting a life you love.
 

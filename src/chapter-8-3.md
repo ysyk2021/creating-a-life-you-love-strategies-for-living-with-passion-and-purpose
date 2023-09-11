@@ -1,5 +1,4 @@
-Chapter 11: Building Resilience to Overcome Challenges
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of resilience and explore strategies to build and strengthen your resilience when faced with challenges on your journey to creating a life filled with passion and purpose. Resilience is a key trait that empowers individuals to bounce back from adversity and continue pursuing their goals.
 

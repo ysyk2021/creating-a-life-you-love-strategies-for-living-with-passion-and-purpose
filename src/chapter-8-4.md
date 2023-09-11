@@ -1,5 +1,4 @@
-Chapter 9: Overcoming Fear of Change
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful emotion of fear and its often-paralyzing effect on individuals seeking to create a life filled with passion and purpose. Fear of change can be a significant barrier, but understanding and overcoming it is essential for personal growth and fulfillment.
 

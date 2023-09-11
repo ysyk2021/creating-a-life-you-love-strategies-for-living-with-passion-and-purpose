@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Fear of Failure
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will address one of the most significant obstacles on your journey to creating a life you love---the fear of failure. We'll explore strategies and insights to help you conquer this fear and unlock your full potential.
 

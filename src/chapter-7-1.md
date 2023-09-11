@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Balance in Living with Passion and Purpose
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical role that balance plays in the pursuit of a life filled with passion and purpose. While passion and purpose are powerful drivers, achieving balance is essential to ensure that your journey remains sustainable and fulfilling.
 
